@@ -9,7 +9,7 @@ Thanks for visiting my GitHub profile, it's great to meet you here! 😊
 - ⚡ Create different ideas in different fields. 🐶
 - 📫 The best way to reach me is to send me an email. `lauixData@gmail.com`
 
-**Team**
+**🚀 Team**
 
 - C.TEAM :https://c.team ( Create creative, innovative and fun products)
 - HACKTL:https://hack.tl ( Focus on the safety industry and create good products)
@@ -25,7 +25,7 @@ Thanks for visiting my GitHub profile, it's great to meet you here! 😊
 - ⚡ 在不同的领域打造不同的创意 🐶
 - 📫 联系我，请发邮件给我. `lauixData@gmail.com`
 
-**团队**
+**🚀 团队**
 
 - C.TEAM :https://c.team ( 一心打造创意、创新、好玩的产品)
 - HACKTL:https://hack.tl ( 专注安全行业，一心打造好产品)
