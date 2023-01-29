@@ -8,8 +8,3 @@ Thanks for visiting my GitHub profile, it's great to meet you here! 😊
 - 🔭 I’m currently working on something cool. :wink:
 - ⚡ Create different ideas in different fields. 🐶
 - 📫 The best way to reach me is to send me an email. `lauixData@gmail.com`
-
-**🚀 Team**
-
-- C.TEAM :https://c.team ( Create creative, innovative and fun products)
-- HACKTL:https://hack.tl ( Focus on the safety industry and create good products)
